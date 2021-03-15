@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @edwardwebster
+- 👀 I’m interested in everything
+- 🌱 I’m currently learning physics
+- 📫 How to reach me ... instagram @im.edward.webster
