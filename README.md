@@ -1,4 +1,4 @@
 - 👋 Hi, I’m @edwardwebster
 - 👀 I’m interested in everything
-- 🌱 I’m currently learning physics
+- 🌱 Physics graduate from the University of Bath
 - 📫 How to reach me ... instagram @im.edward.webster
